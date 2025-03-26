@@ -1,4 +1,4 @@
-# Catalina Neira
+# Catalina Neira 😎
 Soy una estudiante del Major Ingeniería Biomédica, actualmente en cuarto año. Soy de Punta Arenas, pero llevo viviendo en Santiago más de 10 años. Tengo una mascota (un perrito) y me gusta pensar que soy una persona bastante extrovertida con ganas de aprender. [Este es mi instagram](https://www.instagram.com/ktawis/) 😁
 
 Dentro mis hobbies están 
