@@ -10,5 +10,4 @@ Dentro mis hobbies están
 
 Espero pasarla muy bien en este ramo y aprender harto. Actualmente mi serie favorita es One Piece, y la imagen que me identifica en este momento es la siguiente (porque tengo hambre :D)
 
-
 ![Imagen de onepiece](https://ih1.redbubble.net/image.5213143857.0853/pp,504x498-pad,600x600,f8f8f8.jpg)
